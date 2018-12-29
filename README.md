@@ -1,0 +1,2 @@
+# Phim-c-ch-nhi-t-m-
+Sungrad Là thương hiệu đến từ Mỹ được sản xuất bởi công ty Novomatrix. Sungard với khả năng loại bỏ đến 99% tia UV gây hại cho làn da và đồ nội thất. Ngoài ra sungard còn có hiệu quả bức xạ nhiệt lên đến 78% nên sẽ mang đến cho bạn một không gian mát mẻ, thoải mái cho dù người trời nhiệt độ có thể lên đến trên 40 độ C. Nguồn bài viết tại: https://dankinhhoaphat.com/phim-cach-nhiet-my/ #giay_dan_kinh #decal_dan_kinh #dan_kinh_hoa_phat #phim_cach_nhiet
